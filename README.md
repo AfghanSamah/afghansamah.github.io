@@ -1,1 +1,1 @@
-# afghansamah.github.io
+# afghansamah
